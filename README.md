@@ -9,5 +9,5 @@
 📓: [SinSinology.com](https://sinsinology.medium.com/)  
 🐦: [@SinSinology](https://twitter.com/SinSinology)
 
-![sinsinology](me.gif)
+![sinsinology](giphy.webp)
 
